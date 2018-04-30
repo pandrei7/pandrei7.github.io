@@ -8,7 +8,7 @@
 - Windows 7 (32 bit) [Download](https://gofile.io/?c=1zS4Lv)
 
 #### Linux
-- Ubuntu 16.04+ (32 bit) [Download](https://gofile.io/?c=fcIKSs)
+- Ubuntu 16.04+ (32 bit) [Download](https://gofile.io/?c=Sy4n27)
 
 ### Cod sursă
 - Cod sursă [Download](https://gofile.io/?c=XIGPnT)
