@@ -11,4 +11,4 @@
 - Ubuntu 16.04+ (32 bit) [Download](https://gofile.io/?c=Sy4n27)
 
 ### Cod sursă
-- Cod sursă [Download](https://gofile.io/?c=XIGPnT)
+- Cod sursă [Download](https://gofile.io/?c=CtKo2S)
