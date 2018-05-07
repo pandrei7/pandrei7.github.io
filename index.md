@@ -15,4 +15,4 @@
 
 
 ### Pachet atestat
-- Pachet atestat [Download](https://gofile.io/?c=omfsAS)
+- Pachet atestat [Download](https://gofile.io/?c=cm5Wau)
